@@ -1,6 +1,7 @@
 ## Hi there 👋
 
-![nerd](https://github.com/user-attachments/assets/4709d49f-952d-4aeb-baff-6f324a1c264b)
+
+![nerd-emoji-by-google (Phone)](https://github.com/user-attachments/assets/feb6899d-9ee5-4e27-a20b-3b09bd0ec727)
 
 
 <!--
