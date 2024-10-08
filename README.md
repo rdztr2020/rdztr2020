@@ -1,3 +1,4 @@
+![nerd](https://github.com/user-attachments/assets/4709d49f-952d-4aeb-baff-6f324a1c264b)
 ## Hi there 👋
 
 <!--
