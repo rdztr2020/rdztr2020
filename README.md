@@ -1,6 +1,3 @@
-## Hi there 👋
-
-
 ![nerd-emoji-by-google (Phone)](https://github.com/user-attachments/assets/feb6899d-9ee5-4e27-a20b-3b09bd0ec727)
 
 
